@@ -1,5 +1,3 @@
 # 02MLabendia-KinderaddiererConsole
 
-Frohe Weihnachten! :)
-
-Und einen guten Rutsch ins neue Jahr!
+https://3ahmns2122mtin.github.io/02MLabendia-KinderaddiererConsole/
